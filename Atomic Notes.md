@@ -1,0 +1,3 @@
+- Idea / Concept focused note taking.
+- The goal is to create notes that are useful and continually provide value.
+- Opposite of [[Transient Notes]]

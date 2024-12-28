@@ -1,0 +1,1 @@
+- The process of, in your mind's eye, contrasting your current state with the desired future state and examining what obstacles may lie in between now and then.

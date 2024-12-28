@@ -1,0 +1,3 @@
+- Most topics/ideas/movements/goals in this world pull you to extremes but rarely is either extreme a good answer/goal/position. Seek the grey area. The middle.
+- Extremes breed division.
+- There are relatively few things in this world that are black and white. Judge carefully, then either stand firm, or open up.

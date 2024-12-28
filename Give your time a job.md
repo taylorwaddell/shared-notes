@@ -1,0 +1,3 @@
+- The idea that every hour or *{insert preferred time block amount here}* should be given a job. Especially during work hours.
+- Common way to do this is through the [[Time blocking method]].
+- Similar idea to [[Give every dollar a job]].

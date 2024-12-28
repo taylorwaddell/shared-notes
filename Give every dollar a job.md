@@ -1,0 +1,2 @@
+- The idea that every single dollar will inevitably go toward something. Therefore, be intentional as to where/what it does.
+- Similar idea to [[Give your time a job]].
